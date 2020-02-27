@@ -12,7 +12,7 @@ June 5th – June 8th
 
 [AirBnB](https://www.airbnb.co.uk/s/Prague--Czech-Republic/homes?refinement_paths%5B%5D=%2Fhomes&place_id=ChIJi3lwCZyTC0cRkEAWZg-vAAQ&source=mc_search_bar&search_type=section_navigation&screen_size=large&checkin=2020-06-05&checkout=2020-06-08&adults=8) ~£75 per person
 
-AirBnB options
+### AirBnB options
 
 [7 beds, £806 total (£115 each)](https://www.airbnb.co.uk/rooms/20152355?location=Prague%2C%20Czech%20Republic&adults=7&check_in=2020-06-05&check_out=2020-06-08&source_impression_id=p3_1582812981_%2FILGnRZCKuqwNU4p)
 
