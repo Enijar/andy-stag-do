@@ -18,4 +18,6 @@ June 5th – June 8th
 
 [10 beds, £678 total (£96 each) (good for those who are shaggin' 😉)](https://www.airbnb.co.uk/rooms/9159171?location=Prague%2C%20Czech%20Republic&adults=7&check_in=2020-06-05&check_out=2020-06-08&source_impression_id=p3_1582813139_j%2BQdHRSLnHezvwMr)
 
+[7 beds, £486 total (£69 each)](https://www.airbnb.co.uk/rooms/2413125?adults=7&check_in=2020-06-05&check_out=2020-06-08&source_impression_id=p3_1582880239_5hP9bfiobq7v%2Fkep)
+
 [7 beds, £380 total (£54 each)](https://www.airbnb.co.uk/rooms/659531?location=Prague%2C%20Czech%20Republic&adults=7&check_in=2020-06-05&check_out=2020-06-08&source_impression_id=p3_1582813231_zg9zoXZhWB6rGLag)
