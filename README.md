@@ -29,3 +29,5 @@ June 5th – June 8th
 [10 beds, £768 total (£109 each)](https://www.airbnb.co.uk/rooms/24045882?adults=7&check_in=2020-06-05&check_out=2020-06-08&source_impression_id=p3_1582880689_jeWEdoGtQeD8sQ5v)
 
 [7 beds, £827 total, (£118 each)](https://www.airbnb.co.uk/rooms/41038011?adults=7&check_in=2020-06-05&check_out=2020-06-08&source_impression_id=p3_1582880956_AeXhgfOte9v4%2FZcn)
+
+[7 beds, £1085 total, (£155 each)](https://www.airbnb.co.uk/rooms/30691577?adults=7&check_in=2020-06-05&check_out=2020-06-08&source_impression_id=p3_1582881182_mU9nE62EPiGKP5db)
